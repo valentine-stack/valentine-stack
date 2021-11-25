@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Natalia @valentine-stack
+- 👀 I’m interested in VC, tech, sustainability 
+- 🌱 I’m currently learning data science and ML 
+- 📫 How to reach me: nat.walentynowicz@gmail.com 
