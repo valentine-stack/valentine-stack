@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Natalia @valentine-stack
+- 👋 Hi, I’m Nat @valentine-stack
